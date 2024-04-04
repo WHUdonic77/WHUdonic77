@@ -2,7 +2,7 @@
 - 👀 I’m interested in machine learning  
 - 🌱 I’m currently learning basic python  
 - 💞️ I’m looking to collaborate on some interesting projects  
-- 📫 How to reach me 2021302191782@whu.edu  
+- 📫 How to reach me 40998605@whu.edu  
 - 😄 Pronouns: Happy  
 - ⚡ Fun fact
 
